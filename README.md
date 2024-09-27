@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...Bsc.C.Sc.A.I.
 - 💞️ I’m looking to collaborate on ...New projects
 - 📫 How to reach me ...tnjohnrk@gmail.com
-- 😄 Pronouns: ...rk
+- 😄 Pronouns: ...Rohith
 - ⚡ Fun fact: ...A mile is 5,280 feet long.
 
 <!---
